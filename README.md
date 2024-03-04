@@ -15,6 +15,7 @@ l.matheus11@escola.pr.gov.br
 
 [alura](https://cursos.alura.com.br/dashboard)
 
-![luffy-mini-luffy](https://github.com/matheuslop371/mathis/assets/161844145/b1e2d0a9-b939-4de0-ab38-e528d12ba675)
+![one-piece-one-piece-meme](https://github.com/matheuslop371/mathis/assets/161844145/3956e65f-783b-46e1-8e7a-f15ad799001c)
+
 
 
